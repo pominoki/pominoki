@@ -1,0 +1,2 @@
+- hai im pomi
+- i dont code often , im here for funny sites
